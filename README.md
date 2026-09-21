@@ -236,4 +236,4 @@ The Last of Us is available as a full free version, meaning all features and upd
 Don't miss out on this incredible adventure! Download The Last of Us now and experience a journey like no other!
 
 ---
-**Last updated:** 2026-09-21 16:16:33 UTC
+**Last updated:** 2026-09-21 20:49:44 UTC
